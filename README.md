@@ -1,1 +1,0 @@
-# ministerio-getsemani-ademic
